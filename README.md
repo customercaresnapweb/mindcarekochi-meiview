@@ -1,0 +1,1 @@
+# mindcarekochi-meiview
